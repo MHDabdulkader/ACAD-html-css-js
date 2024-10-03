@@ -13,8 +13,7 @@ Teachers:
 ![image](https://github.com/user-attachments/assets/e30ab3c2-3459-4a57-a03f-ee78cb9fa87b)
 
 
-Reviews:
-![image](https://github.com/user-attachments/assets/62cb5366-3ba7-4fe8-ac64-d6a8c5ba0fda)
+
 
 
 Contact :
